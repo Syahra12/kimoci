@@ -1,0 +1,2 @@
+# kimoci
+lucu soalnya
